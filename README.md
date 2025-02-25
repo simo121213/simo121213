@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @simo121213
-- 👀 I’m interested in ...learning and for better tomorrow
+- 👀 I’m interested in ...learning programming and  making a positive impact on society and the environment
 - 🌱 I’m currently learning ...computer programming
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...simonmugo030@gmail.com
